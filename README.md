@@ -212,7 +212,7 @@ U.S. Environmental Protection Agency. (2024). *Toxics Release Inventory (TRI) Ba
 
 **Yazeed Almuhlaki**  
 Spatial Data Scientist  
-[LinkedIn](#) | [GitHub](#) | [Email](#)
+[LinkedIn](www.linkedin.com/in/yazeed-almuhlaki-0172a4360) 
 
 ---
 
